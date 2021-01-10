@@ -16,5 +16,5 @@ Hosting Exp. Date:
 Extra Fees & Services:
     N/A   
     
-Certificate of Authority:
+Certififcat Author:
     Derik Lewis, (id# ms-3719-AgE39-DTM)
